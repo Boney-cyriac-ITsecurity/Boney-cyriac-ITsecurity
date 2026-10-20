@@ -32,4 +32,4 @@ I write up what I learn on [Medium](https://medium.com/@boneycyriac6652).
 
 ## Contact
 
-[LinkedIn](<www.linkedin.com/in/boney-cyriac) · 
+(www.linkedin.com/in/boney-cyriac) · 
